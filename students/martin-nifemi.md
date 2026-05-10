@@ -1,3 +1,3 @@
-Name - Martin Oluwanifemi
-Reg No 2303951
-Matric No 23CD010086
+Name - martin nifemi
+Reg no - 2303951
+Matric No - 23CD010086
